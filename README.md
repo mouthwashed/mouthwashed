@@ -1,7 +1,8 @@
 
 ![welcome2](https://github.com/user-attachments/assets/0e31df15-c896-486f-915b-eb15f12728c1)
 
-![Untitled131_20241108104011](https://github.com/user-attachments/assets/6bc8f99d-536e-426d-8c94-52afaeaff82c)
+![IMG_6982](https://github.com/user-attachments/assets/5acb0eb1-7156-4c11-a08e-c75d1ae48ff7)
+
 
 
 
