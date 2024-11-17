@@ -12,7 +12,7 @@ HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
 </p> 
 
 <p align="center">
-sign my strawpage ! ꒰ I WILL 𝗔𝗟𝗪𝗔𝗬𝗦 DISPLAY YOUR ART!! ꒱
+gyuys...
 </p> 
 
 <p align="center">
