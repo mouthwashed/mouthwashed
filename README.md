@@ -12,7 +12,7 @@ HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
 </p> 
 
 <p align="center">
-gyuys...
+well yes!
 </p> 
 
 <p align="center">
