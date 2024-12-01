@@ -4,7 +4,7 @@
 ![IMG_6982](https://github.com/user-attachments/assets/5acb0eb1-7156-4c11-a08e-c75d1ae48ff7)
 
 
-
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mouthwashed)
 
 
 <p align="center">
