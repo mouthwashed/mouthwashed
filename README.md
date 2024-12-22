@@ -14,10 +14,7 @@ HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
 <p align="center">
 well yes!
 </p> 
-
-<p align="center">
-i am currently interested in 𝗷𝗷𝗸, bsd, 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀𝗵𝗶𝗻𝗴, and 𝘀𝗼𝘂𝘁𝗵 𝗽𝗮𝗿𝗸 !! 
-</p> 
+ 
 
 
 ![cat34](https://github.com/user-attachments/assets/5499dd2b-3b69-4a73-a903-8b1fa51b823d)
